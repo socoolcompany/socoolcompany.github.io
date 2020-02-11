@@ -1,0 +1,2 @@
+# socoolcompany.github.io
+yes
